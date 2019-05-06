@@ -1,1 +1,0 @@
-# mikykonst.github.io
